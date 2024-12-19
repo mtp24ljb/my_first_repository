@@ -75,5 +75,3 @@ And all that glitters is gold
 Only shooting stars break the mold
 
 Woow what a great song - I love it
-
-Jk its crap
